@@ -1,4 +1,4 @@
-# ramonzin.xit
+![image](https://github.com/Bradlip/ramonzin.xit/assets/171102835/e9763136-be5e-4e72-a022-b46932cd76bb)# ramonzin.xit
 
 Boas vindas ao meu perfil
 
@@ -10,6 +10,7 @@ Você pode entrar em contato comigo 😁
 
 00001101101258sp@al.educacao.sp.gov.br
 
-![image](https://github.com/Bradlip/ramonzin.xit/assets/171102835/ccfa8ed9-98c9-4929-8b8c-fac009fc0142)
+![![image](https://github.com/Bradlip/ramonzin.xit/assets/171102835/3454de64-7028-42ae-958d-a4e25f15a590)
+)
 
 
