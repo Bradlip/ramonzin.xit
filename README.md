@@ -1,4 +1,4 @@
-![image](https://github.com/Bradlip/ramonzin.xit/assets/171102835/e9763136-be5e-4e72-a022-b46932cd76bb)# ramonzin.xit
+# ramonzin.xit
 
 Boas vindas ao meu perfil
 
