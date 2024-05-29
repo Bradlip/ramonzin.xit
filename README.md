@@ -10,5 +10,5 @@ Você pode entrar em contato comigo 📫
 
 00001101101258sp@al.educacao.sp.gov.br
 
-![image]![Uploading image.png…]()
-)
+![https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSswwvA9WWb2e3ZfFOEMZHik4jQ9MgJGCEDbg&s](link)
+
